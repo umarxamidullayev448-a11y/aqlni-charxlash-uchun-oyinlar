@@ -1,0 +1,1 @@
+# aqlni-charxlash-uchun-oyinlar
